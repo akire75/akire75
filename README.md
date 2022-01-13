@@ -7,7 +7,7 @@
 -->
 
 - 🔭 I’m currently working on developing my developer skills!
-- 🌱 I’m currently learning about becoming a Kum Nye Tibetan Yoga Instructor!
+- 🌱 I am a Certified Nyingma Kum Nye Tibetan Yoga Instructor!
 - 👯 I’m open to collaborating - design, music, positive energy
 - 🤔 I’m looking for remote work-from-home opportunities!
 - 💬 Ask me about acupuncture and herbal medicine! 
